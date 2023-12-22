@@ -10,7 +10,7 @@ tiantianok,jkys
 yinweiwoshuaia，78ukui
 haohao.89kj1，jhsjy672
 ting.yu5a,hjsyuw672
-naishi,shju78
+naishi,shju78,shuy762
 haodizhenh,shjy672
 tiantianxs,HSUYU82
 tianz，shuhy672
